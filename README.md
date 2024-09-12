@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pranaysunny76
+- 👋 Hi, I’m Pranay
 - 👀 I’m interested in working 
 - 💞️ I’m looking to collaborate on any thing 
 - 📫 How to reach me ...mail me via on sunnypranay0009@gmail.com
